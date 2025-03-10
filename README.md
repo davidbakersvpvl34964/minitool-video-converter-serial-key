@@ -1,0 +1,1 @@
+# minitool-video-converter-serial-key
